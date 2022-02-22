@@ -1,2 +1,2 @@
-# Peliwe.github.io
+#github.io
 Peliwe has dedicated her career in climate change as she is passionate about the implementation of socio-economic development in the face of climate change. She has been involved in data collection and analysis, capacity building programmes in the areas of climate response actions and sustainable energy development. Peliwe describes herself as a hardworking and humble professional whose aspiration is to make society capacitated and resilient to climate change impacts.
